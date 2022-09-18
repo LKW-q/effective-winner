@@ -1,1 +1,1 @@
-Ngai ni Mutugi. Mawiko maria ekaga ni ma kugegania
+Ngai ni Mutugi na ni mwihokeku. Mawiko maria ekaga ni ma kugegania
