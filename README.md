@@ -1,2 +1,1 @@
-# effective-winner
-Win with us
+Ngai ni Mutugi. Mawiko maria ekaga ni ma kugegania
